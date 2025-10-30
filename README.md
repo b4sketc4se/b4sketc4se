@@ -1,3 +1,9 @@
+                                  ᵐᵉⁿ ʷⁱᵗʰ ᵉʸᵉˡⁱⁿᵉʳ.. 𝔂𝓮𝓼 𝓹𝓵𝓮𝓪𝓼𝓮.  
+
+           you can tell this acct is obsessed with green day... especially billie    😽  !!
+
+
+
 
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/0e3d153d-8f1e-48df-8bb7-6b26bda7aed8" />
 

@@ -12,11 +12,12 @@
 
 to learn more...
 
-[strawpage](https://b4sketc4se.straw.page)             |           [ata](https://b1lliej0e.atabook.org)
+.ᐟ [strawpage](https://b4sketc4se.straw.page)             |           [ata](https://b1lliej0e.atabook.org)        ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/84532ebc-928b-4d0d-adc4-dd050f8bd1e9" />
 
 
 
 
 
-![blinkiesCafe-8n](https://github.com/user-attachments/assets/6c4a605a-03bf-4f3c-b5d2-bad4eaacbfca)   ![blinkiesCafe-Po](https://github.com/user-attachments/assets/604b890e-8b14-473c-9155-05503e8cfac4)
+
+
 

@@ -1,7 +1,7 @@
 
-![](https://komarev.com/ghpvc/?username=your-github-username&label=bleplings)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=ffb6c1&label=bleplings&abbreviated=true)
 
-   
+
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 
 ꫂ ၴႅၴ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  maccaronii‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𓆝 ⋆.

@@ -21,7 +21,7 @@
 
 to learn more...
     
-  [strawpage](https://b4sketc4se.straw.page)             |           [ata]((https://maccaroni.atabook.org))        ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⸝⸝ 𓏵
+  [strawpage](https://b4sketc4se.straw.page)             |           [ata](https://maccaroni.atabook.org)        ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⸝⸝ 𓏵
 
 
 

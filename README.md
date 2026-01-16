@@ -1,10 +1,10 @@
-<img width="150" height="288" alt="inkpx-word-art" src="https://github.com/user-attachments/assets/1dcc373f-c285-4c4c-b909-64db9799a07d" />
+<img width="90" height="80" alt="inkpx-word-art" src="https://github.com/user-attachments/assets/1dcc373f-c285-4c4c-b909-64db9799a07d" />‎<img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/8c6fd584-fa0f-4888-ac1a-063396e25261" />
+
 
 
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠
 
-ꫂ ၴႅၴ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  maccaronii‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<img width="120" height="150" alt="image" src="https://github.com/user-attachments/assets/8c6fd584-fa0f-4888-ac1a-063396e25261" />
-
+ꫂ ၴႅၴ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  maccaronii‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 
 

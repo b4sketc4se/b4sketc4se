@@ -1,4 +1,4 @@
-<img width="150" height="288" alt="inkpx-word-art" src="https://github.com/user-attachments/assets/1dcc373f-c285-4c4c-b909-64db9799a07d" /><img width="110" height="200" alt="image" src="https://github.com/user-attachments/assets/6bc8ba8b-0d1d-4436-a7b0-9cae72d46c21" />
+<img width="150" height="288" alt="inkpx-word-art" src="https://github.com/user-attachments/assets/1dcc373f-c285-4c4c-b909-64db9799a07d" />
 
 
 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠

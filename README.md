@@ -1,28 +1,32 @@
-![Image 2](https://github.com/user-attachments/assets/1d9db1a7-92f4-4b03-b236-172a47ce32be) 
-
-
-
-𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠
-
-ꫂ ၴႅၴ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  my milkshake brings all da boyz‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+![Image 4](https://github.com/user-attachments/assets/1b0e75ca-6f83-49b0-8a47-d91948681413)
 
 
 
 
 
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d4e3fe&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img width="90" height="150" alt="image" src="https://github.com/user-attachments/assets/ebc2b486-7304-4852-ba5a-c6daed80c2e6" />
-
+<img width="80" height="100" alt="image" src="https://github.com/user-attachments/assets/7a88a879-4910-45d3-90f8-76a5f74ecd14" />
+<sub> make yerself at home!! ( ´ ▽ ` )	 </sub>
 
 
 
-to learn more...
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d4e3fe&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+
+
+
+
+
+
+
+<sub>to learn more, click on the links below </sub>
     
-  [strawpage](https://bananabred.straw.page)             |           [ata](https://maccaroni.atabook.org)        ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⸝⸝ 𓏵
+  [strawpage](https://bananabred.straw.page)             |           [ata](https://maccaroni.atabook.org)        ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 
-
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4a1d9531-e03b-4aa1-92d2-3b8e2dc31831" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/c441ee88-96e4-4b88-8bf2-61d1942191b7" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/628e598f-f9f4-4e4a-8836-831f2ce9e1c5" />
+<img width="150" height="43" alt="image" src="https://github.com/user-attachments/assets/30a7f470-bf15-4383-89e9-98558ee66cda" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/43a20657-7845-49c6-9321-37312f1ea40c" />
 
 
 

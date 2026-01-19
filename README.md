@@ -3,8 +3,10 @@
 
 
 
+<img width="253" height="30" alt="image" src="https://github.com/user-attachments/assets/207852e0-9540-40da-9365-a5d526124f27" /><img width="253" height="30" alt="image" src="https://github.com/user-attachments/assets/207852e0-9540-40da-9365-a5d526124f27" /><img width="253" height="30" alt="image" src="https://github.com/user-attachments/assets/207852e0-9540-40da-9365-a5d526124f27" />
 
-<img width="80" height="100" alt="image" src="https://github.com/user-attachments/assets/7a88a879-4910-45d3-90f8-76a5f74ecd14" />
+
+
 <sub> make yerself at home!! ( ´ ▽ ` )	 </sub>
 
 

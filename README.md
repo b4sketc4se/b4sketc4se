@@ -6,7 +6,7 @@
 
 
 
-<sub> make yerself at home!! ( ´ ▽ ` )	 </sub>
+<sub> i think, therefore i am.	 </sub>
 
 
 

@@ -6,7 +6,7 @@
 
 
 
-<sub> i think, therefore i am.	 </sub>
+<sub> i think, therefore i am.	𝄞ˎˊ˗ </sub>
 
 
 
@@ -17,10 +17,10 @@
 
 
 
-<sub>to learn more, click on the links below </sub>
+<sub>to learn more, click on the links below: </sub>
     
 
-  [strawpage](https://bananabred.straw.page)             |           [ata](https://maccaroni.atabook.org)        ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://bananabred.straw.page)             |           [𝚊𝚝𝚊](https://maccaroni.atabook.org)        ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 
 <img width="100" height="125" alt="image" src="https://github.com/user-attachments/assets/f08b3a87-17a5-4683-96ff-4a79081ac9d8" />

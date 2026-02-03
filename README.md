@@ -20,7 +20,7 @@
 <sub>to learn more, click on the links below: </sub>
     
 
-  [straw](https://bananabred.straw.page)             |           <sub>ata under maintenance </sub>
+  <sub> sp being edited             |           <sub>ata under maintenance too, sorry </sub>
 
 
 <img width="100" height="125" alt="image" src="https://github.com/user-attachments/assets/f08b3a87-17a5-4683-96ff-4a79081ac9d8" />

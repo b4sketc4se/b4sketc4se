@@ -1,4 +1,4 @@
-<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/16ee1bf0-5d16-4b6d-93b4-3f7e1c72671f" />
+![Image 4](https://github.com/user-attachments/assets/082a758b-f9df-4e5a-a718-ab4aa5e79d36)
 
 
 
@@ -23,7 +23,8 @@
   <sub> [strawpage](https://treslechez.straw.page)</sub>             |           <sub>[ata](https://maccaroni.atabook.org) </sub>
 
 
-<img width="100" height="125" alt="image" src="https://github.com/user-attachments/assets/f08b3a87-17a5-4683-96ff-4a79081ac9d8" />
+![ ](https://github.com/user-attachments/assets/cdf91458-2971-4778-a4d6-7cd66a3dda98)
+
 
 
 

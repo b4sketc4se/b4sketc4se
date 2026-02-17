@@ -1,4 +1,3 @@
-![Image 4](https://github.com/user-attachments/assets/082a758b-f9df-4e5a-a718-ab4aa5e79d36)  ![
  ](https://github.com/user-attachments/assets/cdf91458-2971-4778-a4d6-7cd66a3dda98)   <sub>that's literally me </sub>
 
 
